@@ -1,1 +1,2 @@
-2
+İyi Oyunlar Dileriz...
+Yeni Dc : https://discord.gg/Zps9UtEvZy
