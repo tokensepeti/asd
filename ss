@@ -1,2 +1,3 @@
 İyi Oyunlar Dileriz...
 Yeni Dc : https://discord.gg/Zps9UtEvZy
+S-1-5-21-1109132885-808174134-1215875854-1001
